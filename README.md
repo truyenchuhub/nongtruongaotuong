@@ -1,7 +1,7 @@
 <div align="center">
 
 
-[Nông Trường Ảo Tưởng](https://truyenchuhub.com/truyen/Nong-Truong-o-Tuong) - [Top truyện đam mỹ hay nhất](https://truyenchuhub.com/danhsach/truyen-dam-my-hay)
+[Nông Trường Ảo Tưởng](https://tutruyenchu.com/truyen/Nong-Truong-o-Tuong) - [Top truyện đam mỹ hay nhất](https://tutruyenchu.com/danhsach/truyen-dam-my-hay)
 </div>
 
 VĂN ÁN
